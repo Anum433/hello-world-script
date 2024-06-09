@@ -27,7 +27,7 @@ Visit our website to download the latest version of Kinemaster Mod APK and follo
 
 This repository is for educational purposes only. Please ensure you comply with your local laws and regulations regarding the use of modified APKs.
 
-For more details, visit our [Kinemaster Mod APK website](https://thekinemaster.in).
+For more details, visit our website [Kinemaster Mod APK](https://thekinemaster.in).
 
 ## Contributing
 
